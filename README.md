@@ -1,2 +1,2 @@
 # Proiect-Afaceri-Electronice
-https://youtu.be/xMbOQocxGDM
+https://youtu.be/D_sbcESeFdc
